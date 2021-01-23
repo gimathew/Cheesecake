@@ -1,0 +1,1 @@
+This recipe is a delicious and easy recipe to make mini-cheesecakes. They are little, so you can enjoy them easily. It takes a bit of time though because it has to stay in the refridgerator for a while. This is an amazing recipe!
